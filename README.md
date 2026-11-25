@@ -1,1 +1,1 @@
-Tamil · Hindi · English language expert and AI training specialist
+AI evaluator & training specialist.  Tamil · Hindi · English language expert  
